@@ -1,3 +1,1 @@
 Some python programms
-50TL：V6DPH-CZWTF-HW8TZ
-50TL：P9NGB-IJKI7-Y7W68
