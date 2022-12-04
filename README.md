@@ -1,3 +1,1 @@
 Some python programms
-20TL：KF8ZH-CPLRZ-2BCC9
-100TL：2J6XE-V62TB-XJVGA
